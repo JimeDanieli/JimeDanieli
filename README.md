@@ -3,5 +3,5 @@
  
 - 🌱 I’m currently working on academic projects to improve my knwoledge
 - 👯 I’m looking to work in an innovative and challenging team
-- ⚡ Fun fact: I've spent my whole life learning languages and marketing, last year I made a twist and decided to combine different career paths
+- ⚡ Fun fact: I've spent my whole life learning languages and marketing, but last year I made a twist and decided to combine different career paths
 
